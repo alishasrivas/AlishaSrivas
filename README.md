@@ -10,4 +10,3 @@ I'm Alisha, and here's a bit about me:
 - & not to forget, I got my start in crypto quant. Despite my pivot to AI, blockchain tech is a space & emerging asset class I am very excited about. 
 
 If you’re building something cool or just want to talk applied AI, cool products, or undergrad research, feel free to reach out at alishasrivas@umass.edu!
-I hope you learned a bit about me, and Go Warriors! 🌁
